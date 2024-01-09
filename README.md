@@ -1,1 +1,5 @@
-# Duha2
+# Duha #
+# JUST LIVE IT 
+
+* why are u follow me
+* why not
